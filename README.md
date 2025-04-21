@@ -49,6 +49,9 @@
 
 Si tienes ideas locas, proyectos reales o solo quieres charlar sobre tech, arte o la vida,  
 **aquí estoy**: listo pa conectar, crear y crecer.
+-whatsapp:3132671291
+-gmail:glendernavarro@gmail.com
+-git hub : glennava21
 
 ---
 
